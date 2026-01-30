@@ -1,5 +1,5 @@
-My name is Samuel Y
+My name is Samuel Yippee
 
-my main hobby is Playing CounterStrike 
+my main hobby is getting destroyed CounterStrike 
 
 My favorite anime is One Piece
